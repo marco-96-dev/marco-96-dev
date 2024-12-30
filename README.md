@@ -1,4 +1,4 @@
-##  👋 ```¡Hi, I’m Marco!```
+##  👋 ```¡Hola, mi nombre es Marco!```
 
 - 👀 Mi objetivo es aprender y mejorar cada día más como persona y como profesional.
 
